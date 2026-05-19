@@ -1,4 +1,4 @@
-# 
+# best Wave para PC scripts é o melhor Wave para PC scripts com suporte a multi-moedas e sincronizacao em nuvem. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
